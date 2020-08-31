@@ -1,1 +1,0 @@
-# takumikanki.github.io
